@@ -1,2 +1,2 @@
 # HuntedBobo.github.io
-Work in fucking progress
+Work in progress
